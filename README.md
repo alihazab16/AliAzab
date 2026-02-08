@@ -21,4 +21,4 @@
 ---
 
 📫 **Contact:** [ali_azab16@hotmail.com](mailto:ali_azab16@hotmail.com)  
-🔗 **LinkedIn:** [linkedin.com/in/ali-azab](https://linkedin.com/in/ali-azab)
+🔗 **LinkedIn:** [linkedin.com/in/ali-azab]([https://linkedin.com/in/ali-azab](https://www.linkedin.com/in/ali-azab-00263138b/))
